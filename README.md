@@ -1,5 +1,3 @@
-# MonaG331.github.io
-
 [toc]
 ## Chinese style
 ### traditional costumes
